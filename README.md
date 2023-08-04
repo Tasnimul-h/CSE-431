@@ -13,7 +13,7 @@ https://youtu.be/5LJqOmus0Wg
 
 ## 🔗 Public link of the slide 
 
-https://docs.google.com/presentation/d/1D4_Bw5rq8oKIftC1FJs3uEVn8nfF4b-o--GxkBzlmws/edit?usp=sharing
+https://docs.google.com/presentation/d/1D4_Bw5rq8oKIftC1FJs3uEVn8nfF4b-o--GxkBzlmws/edit#slide=id.gc6f73a04f_0_0
 
 
 
